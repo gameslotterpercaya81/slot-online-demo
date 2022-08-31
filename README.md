@@ -3,9 +3,9 @@
 <details open><summary><b>Show / Hide Ads</b></summary>
 
 # [Hack Apk Ketahui Info Slot Online Demo Via Pulsa](https://atom.io/packages/slot-online-demo)
-## :heart_decoration: klik untuk [Dapatkan Promo Anda Hari Ini](https://agentotoplay.net/register/) :fire: <<< 
-## :point_right: klik untuk [Dapatkan Promo Anda Hari Ini](https://agentotoplay.net/promo/) :100: <<< 
-## :top: klik untuk [Daftar Sekarang](https://agentotoplay.net/) :cake: <<< 
+## :heart_decoration: klik untuk [Dapatkan Promo Anda Hari Ini](https://golinkurl.github.io/register/) :fire: <<< 
+## :point_right: klik untuk [Dapatkan Promo Anda Hari Ini](https://golinkurl.github.io/promo/) :100: <<< 
+## :top: klik untuk [Daftar Sekarang](https://golinkurl.github.io/) :cake: <<< 
 
 ## Informasi Situs /Server Kami : 
 
